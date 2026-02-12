@@ -1,2 +1,2 @@
 # IT115_Mid_Project
-**Daniela** *Amaya*
+**Daniela Valentina** *Amaya Rodriguez*
